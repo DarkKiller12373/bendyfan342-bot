@@ -1,2 +1,2 @@
 # bendyfan342-bot
-this is a test bot XD
+Hello Welcome to our group :D
